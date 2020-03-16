@@ -1,2 +1,0 @@
-# GamingFreddyTM
-Hello, Im VietbloxStudio
